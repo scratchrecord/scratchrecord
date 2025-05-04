@@ -1,4 +1,4 @@
-[alt text]![17463658354275799838142277076618](https://github.com/user-attachments/assets/4e3ab7c6-0947-4327-9d00-89e632119609)
+![17463658354275799838142277076618](https://github.com/user-attachments/assets/4e3ab7c6-0947-4327-9d00-89e632119609)
 
 
 <!---
