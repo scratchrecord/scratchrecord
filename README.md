@@ -14,6 +14,9 @@ acc is only for pt n reaching friends !
 
 ``. adults dni plzz ^_^
 
+---
+``~ favourites : goob , ibuki , nagito , kyoko , bassie , cocoa , yatta , toy chica
+    two time , circus baby , scrap baby , andrew 
 
 
 
