@@ -1,4 +1,5 @@
-![17463658354275799838142277076618](https://github.com/user-attachments/assets/4e3ab7c6-0947-4327-9d00-89e632119609)
+![17463671998994909856070936432342](https://github.com/user-attachments/assets/4ee870fe-9fba-4f98-85be-915f4a47552c)
+
 
 ##
 
@@ -10,7 +11,7 @@ acc is only for pt n reaching friends !
 
 ``. pronounz : she/her pref ! [ char in cos any!
 
-``. interests : danganronpa , fnaf , dandys world , 4saken , pt!
+``. interests : danganronpa , fnaf , dandys world , 4saken , pt , ghost stories dub!
 
 ``. adults dni plzz ^_^
 
