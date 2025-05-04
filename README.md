@@ -1,5 +1,14 @@
 ![17463658354275799838142277076618](https://github.com/user-attachments/assets/4e3ab7c6-0947-4327-9d00-89e632119609)
 
+##
+ 
+``.  nicknames : gummy , electric , rec !
+
+``. pronounz : she/her pref ! [ char in cos any!
+
+``. interests : danganronpa , fnaf , dandys world , 4saken , pt!
+
+
 
 <!---
 scratchrecord/scratchrecord is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
