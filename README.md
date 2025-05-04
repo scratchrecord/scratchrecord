@@ -17,13 +17,7 @@ acc is only for pt n reaching friends !
 
 ---
 ``~ favourites : goob , ibuki , nagito , kyoko , bassie , cocoa , yatta , toy chica
-    two time , circus baby , scrap baby , andrew 
+    two time , circus baby , scrap baby , andrew , bobette , ginger
 
 
 
-
-
-<!---
-scratchrecord/scratchrecord is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
