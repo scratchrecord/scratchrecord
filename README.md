@@ -8,6 +8,10 @@
 
 ``. interests : danganronpa , fnaf , dandys world , 4saken , pt!
 
+``. adults dni plzz ^_^
+
+
+
 
 
 <!---
