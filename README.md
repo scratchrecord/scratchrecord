@@ -14,7 +14,7 @@ acc is only for pt n reaching friends !
 
 ``. interests : danganronpa , fnaf , dandys world , 4saken , pt , ghost stories dub!
 
-``. dni plz ! ^_^ : Adults , proshippers , darkshippers ect
+``. dni plz ! ^_^ : adults [ idm unless ur a creep] , proshippers , darkshippers ect
 
 ---
 ``~ favourites : goob , ibuki , nagito , kyoko , bassie , cocoa , yatta , toy chica
