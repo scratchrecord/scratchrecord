@@ -12,7 +12,7 @@ acc is only for pt n reaching friends !
       DONT copy my style or any of my ponies ASK for inspo. 
       this is targetted 2wards friends and randos its genuinely upsetting me rly bad now
       
-``.  nicknames : gummy , electric , rec !
+``.  nicknames : gummy , electric , rec , fang , raver !
 
 ``. pronounz : she/her pref ! [ char in cos any!
 
@@ -21,8 +21,7 @@ acc is only for pt n reaching friends !
 ``. dni plz ! ^_^ : adults [ idm unless ur a creep] , proshippers , darkshippers ect
 
 ---
-``~ favourites : goob , ibuki , nagito , kyoko , bassie , cocoa , yatta , toy chica
-    two time , circus baby , scrap baby , andrew , bobette , ginger
+``~ i wont update this much considering i lowk forget about my github lolz
 
 
 
