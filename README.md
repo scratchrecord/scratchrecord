@@ -21,8 +21,7 @@ acc is only for pt n reaching friends !
 ``. dni plz ! ^_^ : adults [ idm unless ur a creep] , proshippers , darkshippers ect
 
 ---
-``~ favourites : goob , ibuki , nagito , kyoko , bassie , cocoa , yatta , toy chica
-    two time , circus baby , scrap baby , andrew , bobette , ginger
+``~ i wont upd8 this alot since  im not on github most of the time
 
 
 
