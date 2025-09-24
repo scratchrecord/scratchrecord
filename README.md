@@ -12,11 +12,11 @@ acc is only for pt n reaching friends !
       DONT copy my style or any of my ponies ASK for inspo. 
       this is targetted 2wards friends and randos its genuinely upsetting me rly bad now
       
-``.  nicknames : gummy , electric , rec !
+``.  nicknames : gummy , electric ,raver !
 
 ``. pronounz : she/her pref ! [ char in cos any!
 
-``. interests : danganronpa , fnaf , dandys world , 4saken , pt , ghost stories dub!
+``. interests : danganronpa , fnaf , dandys world , 4saken , pt , pig64(?)!
 
 ``. dni plz ! ^_^ : adults [ idm unless ur a creep] , proshippers , darkshippers ect
 
