@@ -6,11 +6,9 @@
 
 acc is only for pt n reaching friends !
 
+`i wont update this acc! visit @astrology-luminara !` 
+
  ``. dnc or take inspo w/out perms plz^^
-      
-      // im gonna have to set this out since people wont stop.
-      DONT copy my style or any of my ponies ASK for inspo. 
-      this is targetted 2wards friends and randos its genuinely upsetting me rly bad now
       
 ``.  nicknames : gummy , electric ,raver !
 
