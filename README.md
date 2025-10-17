@@ -6,7 +6,7 @@
 
 acc is only for pt n reaching friends !
 
-`i wont update this acc! visit @astrology-luminara !` 
+`i wont update this acc! visit @CANNIBALISTIC-HEARTZ!` 
 
  ``. dnc or take inspo w/out perms plz^^
       
